@@ -1,0 +1,3 @@
+# Where We Are Today
+
+The current climate of the day in tech is... interesting. If you're looking at the Fortune 1000 of pure tech companies and the headlines, you'd think that the tech bubble is bursting, however each month there are more tech jobs being added. You have to look behind the headlines to the data. While publicly traded companies are doing layoffs - mostly to benefit stakeholders - many companies that aren't tech-first companies but use technology to do their work are expanding and looking for talent. As such, that should be a part of your job hunt that you should think about. Colleges, Hospitals, and Media Companies all need talent and are looking for you.
